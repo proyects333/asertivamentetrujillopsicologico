@@ -1,1 +1,1 @@
-# asertivamentetrujillopsicologico
+# asertivamentecentropsicologico
